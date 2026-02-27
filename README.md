@@ -7,8 +7,7 @@
 <img src="https://pixels.crd.co/assets/images/gallery08/e8afc8b1.gif?v=29416114" alt="Untitled"/> [ ˚ ⊹🍓 𝒕𝒊𝒌𝒕𝒐𝒌꒱](https://www.tiktok.com/@kolossosn1wife)
 
 <img src="https://pixels.crd.co/assets/images/gallery25/00afa538.gif?v=29416114" alt="Untitled"/>[ ˚ ⊹🍡 𝒈𝒖𝒏𝒔꒱](https://guns.lol/macaroon)
-
-🍰 ͝  ͡ །࿐ 　 ̥̈ ༙༙ ˚　　𓏵kolo yume🍰༢ེུ༷ 　　❌nonsharing, but I don't block🍥　 ˚̣̣̣ ͡ །  𓏼˚̣̣̣ 　i block freely^^
+🍰 ͝  ͡ །࿐ 　 ̥̈ ༙༙ ˚　　𓏵𝘬𝘰𝘭𝘰 𝘺𝘶𝘮𝘦🍰༢ེུ༷ 　　❌𝘯𝘰𝘯𝘴𝘩𝘢𝘳𝘪𝘯𝘨, 𝘣𝘶𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘣𝘭𝘰𝘤𝘬🍥　 ˚̣̣̣ ͡ །  𓏼˚̣̣̣ 　𝘪 𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺^^
                    
                    
 
