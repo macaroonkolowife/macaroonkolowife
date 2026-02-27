@@ -1,12 +1,11 @@
 <img src="https://files.catbox.moe/jl9ybr.png"/>
 <img src="https://media.discordapp.net/attachments/1438336164992909475/1476741666915487805/output-onlinegiftools_1.gif?ex=69a23a59&amp;is=69a0e8d9&amp;hm=7ad1de25ef2955e54c9f176cd4299386c92f9af4d67625469651ba49a5a3ebc8&amp;=&amp;width=890&amp;height=890" alt="Image"/>      
 
-
-[ ˚ ⊹🍰 𝒓𝒆𝒏𝒕𝒓𝒚꒱](https://rentry.co/macarooniekolowife)
+<img src="https://i.postimg.cc/jjVVsYc5/IMG_4182.gif" alt="emoji"/> [ ˚ ⊹🍰 𝒓𝒆𝒏𝒕𝒓𝒚꒱](https://rentry.co/macarooniekolowife)
 
                    
                    
-<img src="https://i.postimg.cc/jjVVsYc5/IMG_4182.gif" alt="emoji"/>
+
 <img src="https://files.catbox.moe/kyex87.png"/>
 <img src="https://private-user-images.githubusercontent.com/162510444/553272739-acf78769-bc8a-4ac2-9a83-5157e963d5a6.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzIyMDQyNzAsIm5iZiI6MTc3MjIwMzk3MCwicGF0aCI6Ii8xNjI1MTA0NDQvNTUzMjcyNzM5LWFjZjc4NzY5LWJjOGEtNGFjMi05YTgzLTUxNTdlOTYzZDVhNi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMjI3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDIyN1QxNDUyNTBaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT04NWYwODNlNjA0MGQxZmI4YzUwOTE3ZGZlMGE2YmFkMGFmNTA1NzY2ODhmMTIyYzA2MTI1NjgxODJiZDdkNDQ4JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.-in67LFw1BPbZ0AJzZOz9MJ8sOrjRDBNPoUmU4-yeGU"/> <img src="https://private-user-images.githubusercontent.com/162510444/553272826-5934c9f4-ba81-4d53-9897-aeab13a5038c.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzIyMDQyNzAsIm5iZiI6MTc3MjIwMzk3MCwicGF0aCI6Ii8xNjI1MTA0NDQvNTUzMjcyODI2LTU5MzRjOWY0LWJhODEtNGQ1My05ODk3LWFlYWIxM2E1MDM4Yy5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMjI3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDIyN1QxNDUyNTBaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT00NzBmMmJjYjJkMjVlNDg4MjcxZmQ4OTQ1YzI3NDU4MjQyYjY1MjRjOGJiZTI2NzRiZDAyZjc3MmE4YzIyNjUwJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.dsYlFUfqbPkwa_tfNBx3mjmV0mr0fRiiflX-3I9197U"/>
 
