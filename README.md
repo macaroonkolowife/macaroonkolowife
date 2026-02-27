@@ -2,7 +2,7 @@
 <img src="https://media.discordapp.net/attachments/1438336164992909475/1476741666915487805/output-onlinegiftools_1.gif?ex=69a23a59&amp;is=69a0e8d9&amp;hm=7ad1de25ef2955e54c9f176cd4299386c92f9af4d67625469651ba49a5a3ebc8&amp;=&amp;width=890&amp;height=890" alt="Image"/>      
 
 
-[ ˚ ⊹🍰 𝒓𝒆𝒏𝒕𝒓𝒚꒱]([link](https://rentry.co/macarooniekolowife)) 
+[ ˚ ⊹🍰 𝒓𝒆𝒏𝒕𝒓𝒚꒱]([link](https://rentry.co/macarooniekolowife))
 
                    
                    
