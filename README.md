@@ -8,6 +8,7 @@
 
 <img src="https://pixels.crd.co/assets/images/gallery25/00afa538.gif?v=29416114" alt="Untitled"/>[ ˚ ⊹🍡 𝒈𝒖𝒏𝒔꒱](https://guns.lol/macaroon)
 
+🍰 ͝  ͡ །࿐ 　 ̥̈ ༙༙ ˚　　𓏵kolo yume🍰༢ེུ༷ 　　❌nonsharing, but I don't block🍥　 ˚̣̣̣ ͡ །  𓏼˚̣̣̣ 　i block freely^^
                    
                    
 
