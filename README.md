@@ -1,12 +1,7 @@
 <img src="https://files.catbox.moe/jl9ybr.png"/>
 <img src="https://media.discordapp.net/attachments/1438336164992909475/1476741666915487805/output-onlinegiftools_1.gif?ex=69a23a59&amp;is=69a0e8d9&amp;hm=7ad1de25ef2955e54c9f176cd4299386c92f9af4d67625469651ba49a5a3ebc8&amp;=&amp;width=890&amp;height=890" alt="Image"/>      
 
-<img src="https://pixels.crd.co/assets/images/gallery26/146e918a.gif?v=29416114" alt="Untitled"/> [ ˚ ⊹🍰 𝒓𝒆𝒏𝒕𝒓𝒚꒱](https://rentry.co/macarooniekolowife)
-
-
-<img src="https://pixels.crd.co/assets/images/gallery26/94ca4bab.gif?v=29416114" alt="Untitled"/> [ ˚ ⊹🍓 𝒕𝒊𝒌𝒕𝒐𝒌꒱](https://www.tiktok.com/@kolossosn1wife)
-
-<img src="https://pixels.crd.co/assets/images/gallery25/00afa538.gif?v=29416114" alt="Untitled"/>[ ˚ ⊹🍡 𝒈𝒖𝒏𝒔꒱](https://guns.lol/macaroon)
+<img src="https://pixels.crd.co/assets/images/gallery26/146e918a.gif?v=29416114" alt="Untitled"/> [ ˚ ⊹🍰 𝒓𝒆𝒏𝒕𝒓𝒚꒱](https://rentry.co/macarooniekolowife)  <img src="https://pixels.crd.co/assets/images/gallery26/94ca4bab.gif?v=29416114" alt="Untitled"/> [ ˚ ⊹🍓 𝒕𝒊𝒌𝒕𝒐𝒌꒱](https://www.tiktok.com/@kolossosn1wife)     <img src="https://pixels.crd.co/assets/images/gallery25/00afa538.gif?v=29416114" alt="Untitled"/>[ ˚ ⊹🍡 𝒈𝒖𝒏𝒔꒱](https://guns.lol/macaroon)
 
 🍰 ͝  ͡ །࿐ 　 ̥̈ ༙༙ ˚　　𓏵𝘬𝘰𝘭𝘰 𝘺𝘶𝘮𝘦🍰༢ེུ༷ 　
 
