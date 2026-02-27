@@ -10,3 +10,9 @@
 <img src="https://i.postimg.cc/d3YvCbmT/cjrsa9.gif"/>
 <img src="https://i.postimg.cc/CLxX2M1x/8lt86s.gif"/>
 <img src="https://files.catbox.moe/hedy4i.png"/>
+<img src="https://files.catbox.moe/ikzbnf.gif"/><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8447b458-5bbd-4402-87d7-331a3fd79eda" />
+
+
+
+
+[rentry](link)
