@@ -4,8 +4,7 @@
 <img src="https://pixels.crd.co/assets/images/gallery26/146e918a.gif?v=29416114" alt="Untitled"/> [ ˚ ⊹🍰 𝒓𝒆𝒏𝒕𝒓𝒚꒱](https://rentry.co/macarooniekolowife)
 
 
-<img src="https://pixels.crd.co/assets/images/gallery26/94ca4bab.gif?v=29416114" alt="Untitled"/>
- [ ˚ ⊹🍓 𝒕𝒊𝒌𝒕𝒐𝒌꒱](https://www.tiktok.com/@kolossosn1wife)
+<img src="https://pixels.crd.co/assets/images/gallery26/94ca4bab.gif?v=29416114" alt="Untitled"/> [ ˚ ⊹🍓 𝒕𝒊𝒌𝒕𝒐𝒌꒱](https://www.tiktok.com/@kolossosn1wife)
 
 <img src="https://pixels.crd.co/assets/images/gallery25/00afa538.gif?v=29416114" alt="Untitled"/>[ ˚ ⊹🍡 𝒈𝒖𝒏𝒔꒱](https://guns.lol/macaroon)
 
