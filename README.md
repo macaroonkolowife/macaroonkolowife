@@ -6,7 +6,7 @@
 
 <img src="https://pixels.crd.co/assets/images/gallery08/e8afc8b1.gif?v=29416114" alt="Untitled"/> [ ˚ ⊹🍓 𝒕𝒊𝒌𝒕𝒐𝒌꒱](https://www.tiktok.com/@kolossosn1wife)
 
-<img src="https://pixels.crd.co/assets/images/gallery54/72b403cb.gif?v=29416114" alt="Untitled"/>[ ˚ ⊹🍓 𝒈𝒖𝒏𝒔꒱](https://guns.lol/macaroon)
+<img src="https://pixels.crd.co/assets/images/gallery25/00afa538.gif?v=29416114" alt="Untitled"/>[ ˚ ⊹🍡 𝒈𝒖𝒏𝒔꒱](https://guns.lol/macaroon)
 
                    
                    
