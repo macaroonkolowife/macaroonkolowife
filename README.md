@@ -1,36 +1,68 @@
-<img src="https://private-user-images.githubusercontent.com/182716875/549826399-7552690e-1d7d-4631-b431-2b11d96460c2.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzIzMzYwMzgsIm5iZiI6MTc3MjMzNTczOCwicGF0aCI6Ii8xODI3MTY4NzUvNTQ5ODI2Mzk5LTc1NTI2OTBlLTFkN2QtNDYzMS1iNDMxLTJiMTFkOTY0NjBjMi5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMzAxJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDMwMVQwMzI4NThaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jZjE1ZjdmMTcxNGY1N2UxNjA3NjAzOTU5NzIzNzRhNjVhN2ZiNDRiNDkwZTExMjBjNGY5NDFhNmM0MzdjMTk4JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.uDjnuhmWoiCyYS_SqHGdSpmhla7CK-m6nt49UBnYPqw"/>
 
 
-<img src="https://files.catbox.moe/jl9ybr.png"/>
-<img src="https://media.discordapp.net/attachments/1438336164992909475/1476741666915487805/output-onlinegiftools_1.gif?ex=69a23a59&amp;is=69a0e8d9&amp;hm=7ad1de25ef2955e54c9f176cd4299386c92f9af4d67625469651ba49a5a3ebc8&amp;=&amp;width=890&amp;height=890" alt="Image"/>      
+<p align="center">
+<img src="https://github.com/user-attachments/assets/7552690e-1d7d-4631-b431-2b11d96460c2" width="1000" height="1000%""/>
+</p>
+<br>
 
-<img src="https://pixels.crd.co/assets/images/gallery26/146e918a.gif?v=29416114" alt="Untitled"/> [ ˚ ⊹🍰 𝒓𝒆𝒏𝒕𝒓𝒚꒱](https://rentry.co/macarooniekolowife)  <img src="https://pixels.crd.co/assets/images/gallery26/94ca4bab.gif?v=29416114" alt="Untitled"/> [ ˚ ⊹🍓 𝒕𝒊𝒌𝒕𝒐𝒌꒱](https://www.tiktok.com/@kolossosn1wife)     <img src="https://pixels.crd.co/assets/images/gallery25/00afa538.gif?v=29416114" alt="Untitled"/>[ ˚ ⊹🍡 𝒈𝒖𝒏𝒔꒱](https://guns.lol/macaroon)
+<p align="center">
+<img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
+<p align="center">
+  <img src="https://media.discordapp.net/attachments/1438336164992909475/1477021609855291596/Untitled144_20260202140951-removebg-preview.png?ex=69a49091&amp;is=69a33f11&amp;hm=b1033ca239ec057e960a5d4eb176919f32e72ca31bcd8614d00b693ea848e452&amp;=&amp;format=webp&amp;quality=lossless&amp;width=450&amp;height=450" alt="Image"/>
+<p align="center">
+<img src="https://github.com/user-attachments/assets/35f310a0-dba6-43c2-b6af-9ccc5ff52f55" align="left" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<p align="center"> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ ⊹ ࣪ ˖ </summary> Type text here<br> </details> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ㅤ⊹ ࣪ ˖ </summary> Type text here<br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
 
-🍰 ͝  ͡ །࿐ 　 ̥̈ ༙༙ ˚　　𓏵𝘬𝘰𝘭𝘰 𝘺𝘶𝘮𝘦🍰༢ེུ༷ 　
+<p align="center">
+<img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
 
-❌𝘯𝘰𝘯𝘴𝘩𝘢𝘳𝘪𝘯𝘨, 𝘣𝘶𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘣𝘭𝘰𝘤𝘬🍥　 ˚̣̣̣ ͡ ། 
+</p>
 
-𓏼˚̣̣̣ 　𝘪 𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺^^
-                   
-                   
+<br>
+<img src="https://github.com/user-attachments/assets/1a98afeb-b503-4aee-9fa5-c6abd84dfd8e" align="right" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<p align="center"> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ ⊹ ࣪ ˖ </summary> Type info here<br> </details> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ㅤ⊹ ࣪ ˖ </summary> Type text here <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
 
-<img src="https://files.catbox.moe/kyex87.png"/>
-<img src="https://private-user-images.githubusercontent.com/162510444/553272739-acf78769-bc8a-4ac2-9a83-5157e963d5a6.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzIyMDQyNzAsIm5iZiI6MTc3MjIwMzk3MCwicGF0aCI6Ii8xNjI1MTA0NDQvNTUzMjcyNzM5LWFjZjc4NzY5LWJjOGEtNGFjMi05YTgzLTUxNTdlOTYzZDVhNi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMjI3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDIyN1QxNDUyNTBaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT04NWYwODNlNjA0MGQxZmI4YzUwOTE3ZGZlMGE2YmFkMGFmNTA1NzY2ODhmMTIyYzA2MTI1NjgxODJiZDdkNDQ4JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.-in67LFw1BPbZ0AJzZOz9MJ8sOrjRDBNPoUmU4-yeGU"/> <img src="https://private-user-images.githubusercontent.com/162510444/553272826-5934c9f4-ba81-4d53-9897-aeab13a5038c.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzIyMDQyNzAsIm5iZiI6MTc3MjIwMzk3MCwicGF0aCI6Ii8xNjI1MTA0NDQvNTUzMjcyODI2LTU5MzRjOWY0LWJhODEtNGQ1My05ODk3LWFlYWIxM2E1MDM4Yy5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMjI3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDIyN1QxNDUyNTBaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT00NzBmMmJjYjJkMjVlNDg4MjcxZmQ4OTQ1YzI3NDU4MjQyYjY1MjRjOGJiZTI2NzRiZDAyZjc3MmE4YzIyNjUwJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.dsYlFUfqbPkwa_tfNBx3mjmV0mr0fRiiflX-3I9197U"/>
+<p align="center">
+<img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
 
-<img src="https://i.postimg.cc/d3YvCbmT/cjrsa9.gif"/>
-<img src="https://i.postimg.cc/CLxX2M1x/8lt86s.gif"/>
-<img src="https://files.catbox.moe/hedy4i.png"/>
-<img src="https://files.catbox.moe/ikzbnf.gif"/>
+</p>
 
+<img src="https://github.com/user-attachments/assets/048ef54b-509e-4fb9-be49-a9dbce48a6a1" align="left" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<p align="center"> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ ⊹ ࣪ ˖ </summary> Tpe text here <br> </details> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ㅤ⊹ ࣪ ˖ </summary> Type text here<br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}lyric or quote here}}$
 
-<img src="https://pixels.crd.co/assets/images/gallery75/96512abe.gif?v=29416114" alt="Untitled"/> ˚ ⊹🍥 𝘧𝘳𝘪𝘦𝘯𝘥𝘴!꒱
+<p align="center">
+<img src="https://github.com/user-attachments/assets/c95fe79e-1dca-43a4-a60d-bf5671c6b305" width="800" height="800%""/>
+</p>
 
+<br>
+<img src="https://github.com/user-attachments/assets/5162fb6e-4527-475b-95de-6fad2df09df1" align="right" width="40%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<p align="center"> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ㅤ⊹ ࣪ ˖ </summary> Type text here <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<br> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
 
-[@ilovefleetway](https://github.com/ILoveFleetway)
+<p align="center">
+<img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
+</p>
 
+<br>
+<img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c" align="right" width="20%"> <img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c" align="left" width="20%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<p align="center"> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ ⊹ ࣪ ˖ </summary> Type text here </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<br> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
 
-⋆⑅˚<img src="https://pixels.crd.co/assets/images/gallery47/883fb96f.gif?v=29416114" alt="Untitled"/>
-🥄 ୨୧ ![](https://komarev.com/ghpvc/?username=your-github-username&color=F8C8DC)
+<p align="center">
+<img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
 
+</p>
 
-<img src="https://private-user-images.githubusercontent.com/182716875/549828018-5f57f25a-a4b1-4ed1-9675-b8b585eebcc2.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzIzMzYwMzgsIm5iZiI6MTc3MjMzNTczOCwicGF0aCI6Ii8xODI3MTY4NzUvNTQ5ODI4MDE4LTVmNTdmMjVhLWE0YjEtNGVkMS05Njc1LWI4YjU4NWVlYmNjMi5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMzAxJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDMwMVQwMzI4NThaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT04MTFkN2FmM2I1YzQ5YjgzNzQzMDk0NGJmYTc3NzYyMDI3OWFiZmI2MmZmOTVjMjBhNWVkMzM0MjI2YjQ4NWI1JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.aTZ3OXGAKyZy4henh2XN_Z3qVWczOMLAOBJ4cw4-isg"/>
+<p align="center">
+<img src="https://github.com/user-attachments/assets/5f57f25a-a4b1-4ed1-9675-b8b585eebcc2" width="1000" height="1000%""/>
+</p>
+
+WIP
