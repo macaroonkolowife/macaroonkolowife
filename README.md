@@ -1,7 +1,7 @@
 
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/7552690e-1d7d-4631-b431-2b11d96460c2" width="1000" height="1000%""/>
+<img width="2048" height="895" alt="image" src="https://github.com/user-attachments/assets/dd299b85-913b-4681-bcdd-945fd226b505" width="1000" height="1000%""/>
 </p>
 <br>
 
@@ -43,7 +43,7 @@
 </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/5f57f25a-a4b1-4ed1-9675-b8b585eebcc2" width="1000" height="1000%""/>
+<img width="2048" height="895" alt="image" src="https://github.com/user-attachments/assets/e154d844-6889-45b7-9814-81f96a2ebaea" width="1000" height="1000%""/>
 </p>
 
 WIP
