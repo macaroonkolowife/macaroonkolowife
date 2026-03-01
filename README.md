@@ -26,25 +26,6 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ ⊹ ࣪ ˖ </summary> Type info here<br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ㅤ⊹ ࣪ ˖ </summary> Type text here <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
 
-<p align="center">
-<img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
-
-</p>
-
-<img src="https://github.com/user-attachments/assets/048ef54b-509e-4fb9-be49-a9dbce48a6a1" align="left" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
-<p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ ⊹ ࣪ ˖ </summary> Tpe text here <br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ㅤ⊹ ࣪ ˖ </summary> Type text here<br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}lyric or quote here}}$
-
-<p align="center">
-<img src="https://github.com/user-attachments/assets/c95fe79e-1dca-43a4-a60d-bf5671c6b305" width="800" height="800%""/>
-</p>
-
-<br>
-<img src="https://github.com/user-attachments/assets/5162fb6e-4527-475b-95de-6fad2df09df1" align="right" width="40%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
-<p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ㅤ⊹ ࣪ ˖ </summary> Type text here <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
-<br> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
 
 <p align="center">
 <img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
