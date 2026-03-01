@@ -32,7 +32,7 @@
 </p>
 
 <br>
-<img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c" align="right" width="20%"> <img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c" align="left" width="20%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+ <img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c"align="right" width="20%"> <img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c" align="left" width="20%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ ⊹ ࣪ ˖ </summary> Type text here </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <br> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
