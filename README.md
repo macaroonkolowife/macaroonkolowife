@@ -10,7 +10,7 @@
 <p align="center">
   <img src="https://media.discordapp.net/attachments/1438336164992909475/1477021609855291596/Untitled144_20260202140951-removebg-preview.png?ex=69a49091&amp;is=69a33f11&amp;hm=b1033ca239ec057e960a5d4eb176919f32e72ca31bcd8614d00b693ea848e452&amp;=&amp;format=webp&amp;quality=lossless&amp;width=450&amp;height=450" alt="Image"/>
 <p align="center">
-<img src="https://github.com/user-attachments/assets/35f310a0-dba6-43c2-b6af-9ccc5ff52f55" align="left" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<img src="file:///home/chronos/u-19409b2af1be352ef7c6cff21c9f816cfb41fced/MyFiles/Downloads/aaa76e44f26db3851da3add220078f0c-removebg-preview_253x247.png"/><img width="253" height="247" alt="image" src="https://github.com/user-attachments/assets/cfe230bd-095c-42dc-b4a1-6f5c6ec91608" align="left" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ ⊹ ࣪ ˖ </summary> Type text here<br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ㅤ⊹ ࣪ ˖ </summary> Type text here<br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
