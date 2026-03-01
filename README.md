@@ -8,7 +8,8 @@
 <p align="center">
 <img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1438336164992909475/1477021609855291596/Untitled144_20260202140951-removebg-preview.png?ex=69a49091&amp;is=69a33f11&amp;hm=b1033ca239ec057e960a5d4eb176919f32e72ca31bcd8614d00b693ea848e452&amp;=&amp;format=webp&amp;quality=lossless&amp;width=450&amp;height=450" alt="Image"/>
+<img src="https://media.discordapp.net/attachments/1438336164992909475/1477551130539065357/Untitled7_20260301001902.png?ex=69a52c39&amp;is=69a3dab9&amp;hm=ce81a137322f10c535c00f111662bce112b639bc390aa322ddf4381b8073c843&amp;=&amp;format=webp&amp;quality=lossless&amp;width=450&amp;height=450" alt="Image"/>
+
 <p align="center">
 <img src="file:///home/chronos/u-19409b2af1be352ef7c6cff21c9f816cfb41fced/MyFiles/Downloads/aaa76e44f26db3851da3add220078f0c-removebg-preview_253x247.png"/><img width="253" height="247" alt="image" src="https://github.com/user-attachments/assets/cfe230bd-095c-42dc-b4a1-6f5c6ec91608" align="left" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}❝𝐩𝐥𝐞𝐚𝐬𝐞 𝐠𝐢𝐫𝐥❞}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
