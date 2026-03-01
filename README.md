@@ -21,7 +21,7 @@
 </p>
 
 <br>
-<img src="file:///home/chronos/u-19409b2af1be352ef7c6cff21c9f816cfb41fced/MyFiles/Downloads/047f76d0894d361e842821470708953a-removebg-preview_208x192.png"/><img width="208" height="192" alt="image" src="https://github.com/user-attachments/assets/075b72a0-c760-4ef0-ae82-547a03ab3a87"  align="right" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
+<img width="2048" height="388" alt="image" src="https://github.com/user-attachments/assets/c67bc8c4-7eee-4b8a-b875-7ff86616175d"<img width="208" height="192" alt="image" src="https://github.com/user-attachments/assets/075b72a0-c760-4ef0-ae82-547a03ab3a87"  align="right" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ ⊹ ࣪ ˖ </summary> Type info here<br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ㅤ⊹ ࣪ ˖ </summary> Type text here <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
