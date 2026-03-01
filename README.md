@@ -36,18 +36,9 @@
 </p>
 
 <br>
- <img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c"align="right" width="20%"> <img src="https://github.com/user-attachments/assets/1250705a-9c93-4d31-a6e7-3ef3e688ae4c" align="left" width="20%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
-<p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Insert title here}}$ ⊹ ࣪ ˖ </summary> Type text here </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
-<br> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
 
-<p align="center">
-<img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
-
-</p>
 
 <p align="center">
 <img width="2048" height="895" alt="image" src="https://github.com/user-attachments/assets/e154d844-6889-45b7-9814-81f96a2ebaea" width="1000" height="1000%""/>
 </p>
 
-WIP
