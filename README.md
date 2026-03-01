@@ -36,7 +36,7 @@
 <img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
 </p>
 
-![GitHub Views](https://komarev.com/ghpvc/?username=natterstefan&color=FFD1DC)
+![GitHub Views](https://komarev.com/ghpvc/?username=natterstefan&color=FFB8C1)
  
 <img src="https://i.postimg.cc/8PwYTpj3/36.gif"/><img src="https://i.postimg.cc/CKKSwrhC/6.gif"/><img src="https://i.postimg.cc/63v3Nbcj/149.gif"/>
 
