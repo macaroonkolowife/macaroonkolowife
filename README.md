@@ -25,8 +25,10 @@
 <br>
 <img width="2048" height="388" alt="image" src="https://github.com/user-attachments/assets/c67bc8c4-7eee-4b8a-b875-7ff86616175d"<img width="208" height="192" alt="image" src="https://github.com/user-attachments/assets/075b72a0-c760-4ef0-ae82-547a03ab3a87"  align="right" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
+  <img src="https://pixels.crd.co/assets/images/gallery98/e49f76ed.gif?v=29416114" alt="Untitled"/>
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}DNI}}$ ⊹ ࣪ ˖ </summary>proships,darks, problematic yumes or any of problematic criteria, please leave me be.<br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}int!}}$ㅤ⊹ ࣪ ˖ </summary> sonic, kolo, c+h skins , sonic skins of any type, sonic fandom, super mario fandom,jsab, etc , or anything i reconize, doubles please be cautious because i will be uncomfy.<br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
+<img src="https://pixels.crd.co/assets/images/gallery75/96512abe.gif?v=29416114" alt="Untitled"/>
+  <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}int!}}$ㅤ⊹ ࣪ ˖ </summary> sonic, kolo, c+h skins , sonic skins of any type, sonic fandom, super mario fandom,jsab, etc , or anything i reconize, doubles please be cautious because i will be uncomfy.<br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
 
 
 <p align="center">
