@@ -12,7 +12,8 @@
 <p align="center">
 <img src="file:///home/chronos/u-19409b2af1be352ef7c6cff21c9f816cfb41fced/MyFiles/Downloads/aaa76e44f26db3851da3add220078f0c-removebg-preview_253x247.png"/><img width="253" height="247" alt="image" src="https://github.com/user-attachments/assets/cfe230bd-095c-42dc-b4a1-6f5c6ec91608" align="left" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}lyric or quote here}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}ABOUT ME}}$ ⊹ ࣪ ˖ </summary>🍰 ͝ ͡ །࿐ 　 ̥̈ ༙༙ ˚　　𓏵𝘬𝘰𝘭𝘰 𝘺𝘶𝘮𝘦🍰༢ེུ༷ 　 ❌𝘯𝘰𝘯𝘴𝘩𝘢𝘳𝘪𝘯𝘨, 𝘣𝘶𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘣𝘭𝘰𝘤𝘬🍥　 ˚̣̣̣ ͡ ། 𓏼˚̣̣̣ 　𝘪 𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺<br> </details> <details align="center">
+  <img src="https://pixels.crd.co/assets/images/gallery25/00afa538.gif?v=29416114" alt="Untitled"/>
+  <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}ABOUT ME}}$ ⊹ ࣪ ˖ </summary>🍰 ͝ ͡ །࿐ 　 ̥̈ ༙༙ ˚　　𓏵𝘬𝘰𝘭𝘰 𝘺𝘶𝘮𝘦🍰༢ེུ༷ 　 ❌𝘯𝘰𝘯𝘴𝘩𝘢𝘳𝘪𝘯𝘨, 𝘣𝘶𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘣𝘭𝘰𝘤𝘬🍥　 ˚̣̣̣ ͡ ། 𓏼˚̣̣̣ 　𝘪 𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺<br> </details> <details align="center">
   <img src="https://pixels.crd.co/assets/images/gallery25/3b662477.gif?v=29416114" alt="Untitled"/>
   <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}MORE}}$ㅤ⊹ ࣪ ˖ </summary> ive been with kolo ever since td came out, i am the number one kolo fan :3! i love him so much hes so silllyyyyuhhhh! <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}Lyric or quote here}}$
 
