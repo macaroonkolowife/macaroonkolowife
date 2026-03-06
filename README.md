@@ -49,6 +49,7 @@
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d4ckhx3nyjk33xtqtz56citlcu&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&mode=dark&bar_color=ffc7c7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 <br>
 <p align="center">
 <img width="2048" height="895" alt="image" src="https://github.com/user-attachments/assets/e154d844-6889-45b7-9814-81f96a2ebaea" width="1000" height="1000%""/>
