@@ -66,7 +66,7 @@ darkshippers fuck off please
  
  [『🍰』︶︶ 𝘳𝘦𝘯𝘵𝘳𝘺](https://rentry.co/macarooniekolowife)
  
-<img src="https://media.discordapp.net/attachments/1438336164992909475/1479350900978876518/b43b2181-0404-4325-90d7-525ac5370f18.gif?ex=69abb863&amp;is=69aa66e3&amp;hm=9b8ea613759431a86fdad6cef7d104be8d0042cb0710c585ee960da9d2840f63&amp;=&amp;width=101&amp;height=101" alt="Image"/>
+<img src="https://media.discordapp.net/attachments/1438336164992909475/1479350900978876518/b43b2181-0404-4325-90d7-525ac5370f18.gif?ex=69abb863&amp;is=69aa66e3&amp;hm=9b8ea613759431a86fdad6cef7d104be8d0042cb0710c585ee960da9d2840f63&amp;=&amp;width=101&amp;height=101" alt="Image" height="240" width="240" align="center"> 
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d4ckhx3nyjk33xtqtz56citlcu&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&mode=dark&bar_color=ffc7c7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
