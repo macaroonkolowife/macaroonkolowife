@@ -62,8 +62,7 @@ darkshippers fuck off please
 
 [@ilovefleetway](https://github.com/ILoveFleetway)
 
- 
- [『🍰』︶︶ 𝘳𝘦𝘯𝘵𝘳𝘺](https://rentry.co/macarooniekolowife)
+<img src="https://media.discordapp.net/attachments/1438336164992909475/1480801313204736061/ezgif-7479074c09af5eaf.gif?ex=69b0ff31&amp;is=69afadb1&amp;hm=d322c68ac358d999ec19702db4a48a7eefb821383582d15f7d7b9adcfe16cd3e&amp;=&amp;width=184&amp;height=282" alt="Image"/>[『🍰』︶︶ 𝘳𝘦𝘯𝘵𝘳𝘺](https://rentry.co/macarooniekolowife)
  
 <p align="center"> <img src="https://media.discordapp.net/attachments/1438336164992909475/1479350900978876518/b43b2181-0404-4325-90d7-525ac5370f18.gif?ex=69abb863&amp;is=69aa66e3&amp;hm=9b8ea613759431a86fdad6cef7d104be8d0042cb0710c585ee960da9d2840f63&amp;=&amp;width=101&amp;height=101" alt="Image" height="240" width="240"><p align="center"> 
 
